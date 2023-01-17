@@ -7,5 +7,5 @@
 - 📗 I've been studying linguistics (specialization: second language acquisition and langauge testing) at UMD.
 - 📫 How to reach me: 
   - sophiesohyepark@gmail.com
-  - [Linkedin](www.linkedin.com/in/sohye-park)
+  - [Linkedin](https://www.linkedin.com/in/sohye-park)
 
