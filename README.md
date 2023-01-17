@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi my name is SoHye 👋
 
 <!--
 **sohyepargins/sohyepargins** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
